@@ -1,1 +1,1 @@
-<META HTTP-EQUIV="Refresh" CONTENT="0;URL=https://emergency.fund.lab.leeseungju.com/">
+<META HTTP-EQUIV="Refresh" CONTENT="0;URL=http://korea-assetcenter.leeseungju.com/">
