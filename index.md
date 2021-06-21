@@ -1,1 +1,1 @@
-<META HTTP-EQUIV="Refresh" CONTENT="0;URL=http://korea-assetcenter.leeseungju.com/">
+<META HTTP-EQUIV="Refresh" CONTENT="0;URL=http://pf.kakao.com/_tLKxls/chat">
