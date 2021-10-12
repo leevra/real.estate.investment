@@ -1,1 +1,1 @@
-<META HTTP-EQUIV="Refresh" CONTENT="0;URL=https://www.leeseungju.com/land_notice/2">
+<META HTTP-EQUIV="Refresh" CONTENT="0;URL=https://www.leeseungju.com/notice/46">
